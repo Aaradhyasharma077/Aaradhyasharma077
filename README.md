@@ -1,1 +1,1 @@
-Idk if you will open this or not but my first front end project and even my git repo was dedicated to you.
+Idk if you will open this or not but my first frontend project and git repo from main account was for you
